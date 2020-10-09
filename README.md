@@ -1,0 +1,2 @@
+# tugas1individuRPL
+tugas1_individu_JaydaneKhalid_xiiRPL
